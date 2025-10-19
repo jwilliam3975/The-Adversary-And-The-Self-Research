@@ -1,3 +1,5 @@
+<img width="191" height="20" alt="image" src="https://github.com/user-attachments/assets/0fb27f69-be90-4f1a-ba70-12f3ea8b049f" />
+
 # The-Adversary-And-The-Self-Research
 A working paper on an introduction to Justinian Linguistic Deconstruction and a linguistic review of sin, the Satan, and Hell by J William Gill
 
